@@ -1,4 +1,4 @@
-### **Lesson 4: Links and Navigation - Classwork Assignment**
+### **Lesson 5: Links and Navigation - Classwork Assignment**
 
 #### **Objective:**
 
